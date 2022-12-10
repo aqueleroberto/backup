@@ -5,4 +5,4 @@
   - Pokemon Leaf Green BR: https://www.mediafire.com/file/1f854c9qhb50fov/Pokemon_Leaf_Green_pt_BR.zip/file
   
 - Links
-  Visual C++ Redistributable Runtimes All-in-One: https://www.techpowerup.com/download/visual-c-redistributable-runtime-package-all-in-one/
+  - Visual C++ Redistributable Runtimes All-in-One: https://www.techpowerup.com/download/visual-c-redistributable-runtime-package-all-in-one/
