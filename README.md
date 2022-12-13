@@ -12,3 +12,8 @@
     https://www.mediafire.com/file/5fsxh6neuzj21x8/Flasko+donos+do+proprio+suor+-+Documentário+completo.rar/file
   - Como crescer no TikTok (e fazer o socialismo crescer junto):
     https://www.mediafire.com/file/8goym38l5zm4dre/Snaptik.app_7171975377256992006.mp4/file
+  - Todo Mundo Odeia o Chris:
+    - Temporada 1: 
+    - Temporada 2:
+    - Temporada 3:
+    - Temporada 4:
