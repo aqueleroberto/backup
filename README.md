@@ -26,8 +26,9 @@
     https://www.mediafire.com/file/8goym38l5zm4dre/Snaptik.app_7171975377256992006.mp4/file
 
 - JOOGOS:
-  - Need for Speed: Most Wanted: 
+  - Need for Speed: Most Wanted
     - https://www.mediafire.com/file/011qvw0sjtfnruv/Need+for+Speed+Most+Wanted.rar/file
-  - Grand Theft Auto: San Andreas: 
-  - Pokemon Leaf Green BR:
+  - Grand Theft Auto: San Andreas
+    - https://www.mediafire.com/file/t5s06l6ypr2pyg5/Grand+Theft+Auto+San+Andreas.rar/file
+  - Pokemon Leaf Green BR
      - https://www.mediafire.com/file/1f854c9qhb50fov/Pokemon_Leaf_Green_pt_BR.zip/file
