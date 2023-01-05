@@ -4,8 +4,7 @@
   - 4K Video Download:
   https://www.mediafire.com/file/y33mvdyhqwn8ndk/4KDownload.rar/file
   
-  - Pokemon Leaf Green BR:
-  https://www.mediafire.com/file/1f854c9qhb50fov/Pokemon_Leaf_Green_pt_BR.zip/file
+  
   
 - Links
   - Visual C++ Redistributable Runtimes All-in-One:
@@ -25,3 +24,9 @@
     
   - Como crescer no TikTok (e fazer o socialismo crescer junto):
     https://www.mediafire.com/file/8goym38l5zm4dre/Snaptik.app_7171975377256992006.mp4/file
+
+- JOOGOS:
+  - Need for Speed: Most Wanted: 
+  - Grand Theft Auto: San Andreas: 
+  - Pokemon Leaf Green BR:
+     - https://www.mediafire.com/file/1f854c9qhb50fov/Pokemon_Leaf_Green_pt_BR.zip/file
